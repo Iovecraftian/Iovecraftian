@@ -13,13 +13,15 @@
   $${\color{#FFFCB8}He} {\color{#A35515}/} {\color{#FFFCB8}him}$$
 $${\color{#FFFCB8}Indo \space n \space English}$$
 $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
+</p>
+
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=WaverIy&style=flat-square&color=A35515&label=heads+or+tails" alt="profile view counter" width="100" align="center">
+</p>
   
 <p align="center">
   <img width="55" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/m27.gif"></img></a>
 </p>
-
-
-
 
 
  
@@ -31,17 +33,16 @@ $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
    $${\color{#FFFCB8}The \space Dark \space Pictures \space Anthology, \space anything \space relating \space law \space and \space politics}$$ <br>
     $${\color{#FFFCB8}as \space well \space as \space architecture, \space Reverse:1999, \space Twobats/Bruharvey \space ❤️ \space}$$
    <br>
+     $${\color{#A35515}Dni: \space} {\color{#FFFCB8}-16 \space unless \space close \space friends, \space illiterates, \space bigots,}$$ <br>
+   $${\color{#FFFCB8}anyone \space that \space hangs \space around \space *that* \space tree.}$$ <br>
+   $${\color{#FFFCB8}other \space times \space i \space block/hide \space freely.}$$ <br>
+     $${\color{#A35515}Miscellaneous: \space} {\color{#FFFCB8}I \space am \space afk \space most \space of \space the \space time \space on \space Pony Town,}$$ <br>
+   $${\color{#FFFCB8}it \space is \space preferred \space if \space you \space whisper \space to \space me \space so \space that \space i'd \space see \space your \space chat.}$$ <br>
+   $${\color{#FFFCB8}Friends \space and/or \space anyone \space with \space the \space same \space interest(s) \space may \space cuddle/hide \space behind \space me \space freely.}$$ <br>
+   $${\color{#FFFCB8}Please \space refrain \space from \space covering \space my \space skins, \space much \space appreciated!}$$ <br>
  </details /p>
  
 </p>
-
-
-
-
-
-
-
-
 
    
 <p align="center">
